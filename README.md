@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LionJustice
+- 👀 I’m interested in Coding Scripts
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate in the future
+- 📫 How to reach me Lion Justice#7406
